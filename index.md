@@ -33,3 +33,12 @@
 ### 杂志
 [Point Contemporain](http://pointcontemporain.com/)  
 
+### 诗歌  
+[每日诗歌](https://www.poetryfoundation.org/poems/poem-of-the-day)  
+
+[poem.org](https://poets.org/poems)  
+
+[poetryfoundation](https://www.poetryfoundation.org/poems)  
+
+
+
